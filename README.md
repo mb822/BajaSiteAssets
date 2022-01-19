@@ -10,3 +10,5 @@
 ![Joel](https://user-images.githubusercontent.com/70653539/150049799-0b169a04-46e9-4676-81cb-c9cf14b2fccc.jpg)
 ![Jason_V2](https://user-images.githubusercontent.com/70653539/150050305-3ba43ac2-c87c-4e05-ad42-568630e0daa4.jpg)
 ![Sam_V2](https://user-images.githubusercontent.com/70653539/150050308-5a9bd608-3489-46c2-8fdd-a08e235c7644.jpg)
+![Mike](https://user-images.githubusercontent.com/70653539/150050482-7ee2d4b2-e95e-42ce-8352-1a60207401b4.jpg)
+![James ](https://user-images.githubusercontent.com/70653539/150198369-312ac75d-e223-4471-947f-b820b7b861f0.jpg)
