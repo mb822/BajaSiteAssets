@@ -13,3 +13,14 @@
 ![Mike](https://user-images.githubusercontent.com/70653539/150050482-7ee2d4b2-e95e-42ce-8352-1a60207401b4.jpg)
 ![James ](https://user-images.githubusercontent.com/70653539/150198369-312ac75d-e223-4471-947f-b820b7b861f0.jpg)
 ![David](https://user-images.githubusercontent.com/70653539/150198664-d0ab03bb-41da-42b1-8c78-de5b7d30e678.jpg)
+----------------------
+NEW
+---------------------
+![Baja22Headshot_James](https://user-images.githubusercontent.com/70653539/159128328-d94295a7-b98c-4655-96a2-dc9cd4010749.jpg)
+![Baja22Headshot_Jani](https://user-images.githubusercontent.com/70653539/159128330-f5e866e5-78e9-4c5b-9722-f9cd081a0fc2.jpg)
+![Baja22Headshot_Joel](https://user-images.githubusercontent.com/70653539/159128333-b5793d23-c1bf-45cf-bec7-b6aeb03b1bab.jpg)
+![Baja22Headshot_Koogs](https://user-images.githubusercontent.com/70653539/159128337-41c59195-23d2-492e-8be3-2fa8209e3a72.jpg)
+![Baja22Headshot_Mike](https://user-images.githubusercontent.com/70653539/159128338-a6629f1a-466f-4195-891c-cb70e2aa4841.jpg)
+![Baja22Headshot_Sean](https://user-images.githubusercontent.com/70653539/159128340-c57ea083-1b70-4659-9eb2-7e7b3b7b78e9.jpg)
+![Jason_V2](https://user-images.githubusercontent.com/70653539/159128341-85d80d52-a627-40b5-890a-c41413e0fd40.jpg)
+![Sam_V2](https://user-images.githubusercontent.com/70653539/159128344-71fe3bfa-4a42-4dc5-a01f-6c2525e61366.jpg)
